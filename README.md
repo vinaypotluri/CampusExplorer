@@ -25,5 +25,29 @@ The app is focussed initially to benefit the incoming college freshmen who are t
 Snapshots
 ==========
 
-//will be updated soon
+![](http://i.imgur.com/O2r0WCc.png)
 
+
+
+
+![](http://i.imgur.com/emMqbX6.png)
+
+
+
+
+![](http://i.imgur.com/Ee69uSI.png)
+
+
+
+
+![](http://i.imgur.com/AUVQxMV.png)
+
+
+
+
+![](http://i.imgur.com/iXNROEm.png)
+
+
+
+
+![](http://i.imgur.com/nSOOABA.png)
